@@ -6,3 +6,6 @@
 
 ![image](https://github.com/MatheusMach/EstudosRedeNeural/assets/120617245/9cb091d7-3593-4365-b765-30dc3ef958b4)
 
+![image](https://github.com/MatheusMach/EstudosRedeNeural/assets/120617245/bb743e7e-a8ab-4265-b47a-7593039ae78a)
+
+
